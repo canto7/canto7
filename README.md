@@ -9,8 +9,7 @@
 <p align="center">  i'm an ishmael & catherine earnshaw fictionkin . i use he/it pronouns <i>+ neopronouns.</i> </p>
 <p align="center">  i really enjoy playing ponytown, even though alot of my ponies are rather mediocre..i'm still new to the editor :,D </p>
 <p align="center">  all of my ponies are c+h and you are free to whisper me to interact !! i love making friends too, so <i>feel free</i> to ask for my discord <img src="https://64.media.tumblr.com/08d410163bdf4b1270ecead99bc18503/89566bb80cf992ff-6e/s75x75_c1/6f3e778dc2c00d961b122c32bf618c9ff208e6f8.gifv"> </p>
-
-^ please do read my rentry byi and dni first .. okay ? okay...
+<p align="center">  i really do love talking to pmoon fans so please whisper to interact .. okei ? okei !!!  </p>
 
 <p align="center"> <b> last listened to :</b> </p>
 <p align="center">
