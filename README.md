@@ -11,3 +11,10 @@
 <p align="center">  all of my ponies are c+h and you are free to whisper me to interact !! i love making friends too, so <i>feel free</i> to ask for my discord <img src="https://64.media.tumblr.com/08d410163bdf4b1270ecead99bc18503/89566bb80cf992ff-6e/s75x75_c1/6f3e778dc2c00d961b122c32bf618c9ff208e6f8.gifv"> </p>
 
 ^ please do read my rentry byi and dni first .. okay ? okay...
+
+<p align="center"> <b> last listened to :</b> </p>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31fpo6g2qyzafdfyrgdi7xrvasbm&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color_cover=false">
+  </a>
+</p>
